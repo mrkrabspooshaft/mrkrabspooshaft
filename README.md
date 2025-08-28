@@ -1,8 +1,7 @@
    ![](https://files.catbox.moe/o9yg8i.png)
    
- ‎ ‎ ‎‎hi uhhh im **gentle** and im professionally diagnosed as plural + i attend art school and im a minor bodily ![](https://cdn.discordapp.com/emojis/1113884011517988976.webp?size=22&quality=lossless) 
-
-  ‎ ‎ ‎ ![](https://cdn.discordapp.com/emojis/1113885037675429978.webp?size=22&quality=lossless)‎‎ ‎ ‎ ‎ ‎i suck btw my public execution: 9th of august 2026... im an artist and voice actor btw
+ ‎ ‎ ‎‎hi uhhh im **gentle** and im professionally diagnosed as plural + i attend art school and im a minor bodily 
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎i suck btw my public execution: 9th of august 2026... im an artist and voice actor btw
 
  ‎ ‎ ‎ ‎ ‎ im queerplatonic partners with KATTIE... my beautiful w1fe LOL !!! dni under 13 btw SOZ  ‎  
  
