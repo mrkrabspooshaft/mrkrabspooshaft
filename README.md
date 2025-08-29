@@ -14,7 +14,14 @@ freq fronters; **kasper** , beetle sign my [ata](https://mrkrabspooshaft.atabook
 <summary>things that make me uncomfy L0L</summary>
 
 <div style="width: 430px; height: 220px; background-color: white; border-color: hot-pink; border-width: 1px; border-style: dotted; color: #000000; font-size: 11px; overflow: auto;"><p>
-<p>fictokins (except rick sorry) , "irls" , endosystems , proshippers , shotacons , spawnists / any cultist tbh , just w3ird people in general LOL </p>
+<p>fictokins (except rick sorry) , "irls" , endosystems , proshippers , shotacons , spawnists / any cultist tbh , zionists / pro war , just w3ird people in general LOL </p>
+</p></div></details>
+
+<details>
+<summary>where 2 find us</summary>
+
+<div style="width: 430px; height: 220px; background-color: white; border-color: hot-pink; border-width: 1px; border-style: dotted; color: #000000; font-size: 11px; overflow: auto;"><p>
+<p>usually we are near the outside of the market , outside the library or in the library , at the docks and rarely in the bakery ALWAYS in safe server </p>
 </p></div></details>
 
 
