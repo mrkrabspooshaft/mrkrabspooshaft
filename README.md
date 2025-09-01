@@ -1,5 +1,9 @@
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/o9yg8i.png" alt="Material Bread logo">
+    <img width="1000" src="https://i.imgur.com/aQmdJ01.jpg" alt="Material Bread logo">
+</p>
+
+<p align="center">
+    <img width="max" src="https://media.discordapp.net/attachments/1341505862262460557/1410453241711431824/3d059062ca038c4ad2519ed271a06d63.jpg?ex=68b70131&is=68b5afb1&hm=cd246d9370ceada95755d8e562cb5224caaa26b32ac6cb288d702189039702cf&=&format=webp&width=899&height=656" alt="Material Bread logo">
 </p>
    
   <p align="center">
@@ -16,9 +20,13 @@
 </p>
 
 <p align="center">
-    <img width="200" src="https://64.media.tumblr.com/e5eeb1782b9b90125c10a9d71bf13d47/4c47cd4edf92f7ed-b5/s400x600/149b047dbb187d6d742f92439dfc8cb2c8ccc443.pnj" alt="a"> <img width="200" src="https://64.media.tumblr.com/be2fb73e409b7fab247fe05f5965b1ed/d9cd9d158edf3676-50/s400x600/3713d9bb6a510aad93637e6333e928610ff73595.pnj" alt="a"> <img width="200" src="https://64.media.tumblr.com/d482faa04cd6840a960df6d866a0b814/b6882806af6091a7-3a/s250x400/fc35035fb2aa6d98524fcf7751ce9fa2b09aed4f.pnj" alt="a">
+    <img width="200" src="https://64.media.tumblr.com/e5eeb1782b9b90125c10a9d71bf13d47/4c47cd4edf92f7ed-b5/s400x600/149b047dbb187d6d742f92439dfc8cb2c8ccc443.pnj" alt="a"> <img width="200" src="https://64.media.tumblr.com/be2fb73e409b7fab247fe05f5965b1ed/d9cd9d158edf3676-50/s400x600/3713d9bb6a510aad93637e6333e928610ff73595.pnj" alt="a"> <img width="200" src="https://64.media.tumblr.com/d482faa04cd6840a960df6d866a0b814/b6882806af6091a7-3a/s250x400/fc35035fb2aa6d98524fcf7751ce9fa2b09aed4f.pnj" alt="a"> <img width="200" src="https://jugproductions.neocities.org/asdfWOAOAAAHHH.webp" alt="a"> <img width="200" src="https://jugproductions.neocities.org/ngngngn.png" alt="a"> <img width="200" src="https://jugproductions.neocities.org/graphics/awesum%20stamp.png" alt="a"> <img width="200" src="https://jugproductions.neocities.org/art.webp" alt="a">
 </p>
 <p align="center">
+
+<p align="center">
+   <img width="100" src="https://i.imgur.com/bxvmZJ4.gif" alt="a">  <img width="100" src="https://transbro.neocities.org/Graphics/Icons/Emo/054-deadisthenewalive.gif" alt="a">  <img width="100" src="https://i.imgur.com/Pbf5xuF.jpg" alt="a">  <img width="100" src="https://i.imgur.com/SiEkNYl.jpg" alt="a">
+</p>
 
 <details>
 <summary>things that make me uncomfy L0L</summary>
@@ -34,4 +42,7 @@
 <p>usually we are near the outside of the market , outside the library or in the library , at the docks and rarely in the bakery ALWAYS in safe server </p>
 </p></div></details>
 
+<p align="center">
+    <img width="1000" src="https://i.imgur.com/aQmdJ01.jpg" alt="Material Bread logo">
+</p>
 
