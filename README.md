@@ -3,24 +3,32 @@
 </p>
 
 <p align="center">
-    <img width="max" src="https://media.discordapp.net/attachments/1341505862262460557/1410453241711431824/3d059062ca038c4ad2519ed271a06d63.jpg?ex=68b70131&is=68b5afb1&hm=cd246d9370ceada95755d8e562cb5224caaa26b32ac6cb288d702189039702cf&=&format=webp&width=899&height=656" alt="Material Bread logo">
+    <img width="500" src="https://files.catbox.moe/ue58sn.png" alt="Material Bread logo"> 
+</p>
+
+<p align="center">
+    <img width="100" src="https://pixelsafari.neocities.org/buttons/1newgrounds.gif" alt="Material Bread logo"> <img width="max" src="https://pixelsafari.neocities.org/buttons/2minecraft.png" alt="a"> <img width="max" src="https://pixelsafari.neocities.org/buttons/1disc6.gif" alt="a">
+</p>
+
+<p align="center">
+    <img width="70" src="https://pixelsafari.neocities.org/misc/badge/ikea2.gif" alt="Material Bread logo"> <img width="70" src="https://pixelsafari.neocities.org/misc/badge/hottopic.gif" alt="a"> <img width="70" src="https://pixelsafari.neocities.org/misc/badge/host.gif" alt="a">
 </p>
    
   <p align="center">
    $\color{rgb(252,3,240)}{\textsf{hi im gentle umm im professionally diagnosed with DID + im an art student and yea thats about it .. im a minor bodily}}$
                     </p>
                     <p align="center">
-‎ ‎ ‎ ‎ ‎    ‎ $\color{rgb(252,3,240)}{\textsf{‎i suck btw my public execution: 9th of august 2026... im an artist and voice actor btw}}$
+‎ ‎ ‎ ‎ ‎    ‎ $\color{rgb(237,45,45)}{\textsf{‎i suck btw my public execution: 9th of august 2026... im an artist and voice actor btw}}$
                     </p>
 <p align="center">
  ‎ ‎ ‎     ‎ ‎ $\color{rgb(252,3,240)}{\textsf{im queerplatonic partners with KATTIE... my beautiful w1fe LOL !!! dni under 13 btw SOZ}}$  ‎  
 </p>
 <p align="center">
-   $\color{rgb(252,3,240)}{\textsf{freq fronters; kasper , beetle}}$  
+   $\color{rgb(237,45,45)}{\textsf{freq fronters; kasper , beetle}}$  
 </p>
 
 <p align="center">
-    <img width="200" src="https://64.media.tumblr.com/e5eeb1782b9b90125c10a9d71bf13d47/4c47cd4edf92f7ed-b5/s400x600/149b047dbb187d6d742f92439dfc8cb2c8ccc443.pnj" alt="a"> <img width="200" src="https://64.media.tumblr.com/be2fb73e409b7fab247fe05f5965b1ed/d9cd9d158edf3676-50/s400x600/3713d9bb6a510aad93637e6333e928610ff73595.pnj" alt="a"> <img width="200" src="https://64.media.tumblr.com/d482faa04cd6840a960df6d866a0b814/b6882806af6091a7-3a/s250x400/fc35035fb2aa6d98524fcf7751ce9fa2b09aed4f.pnj" alt="a"> <img width="200" src="https://jugproductions.neocities.org/asdfWOAOAAAHHH.webp" alt="a"> <img width="200" src="https://jugproductions.neocities.org/ngngngn.png" alt="a"> <img width="200" src="https://jugproductions.neocities.org/graphics/awesum%20stamp.png" alt="a"> <img width="200" src="https://jugproductions.neocities.org/art.webp" alt="a">
+    <img width="100" src="https://64.media.tumblr.com/e5eeb1782b9b90125c10a9d71bf13d47/4c47cd4edf92f7ed-b5/s400x600/149b047dbb187d6d742f92439dfc8cb2c8ccc443.pnj" alt="a"> <img width="100" src="https://64.media.tumblr.com/be2fb73e409b7fab247fe05f5965b1ed/d9cd9d158edf3676-50/s400x600/3713d9bb6a510aad93637e6333e928610ff73595.pnj" alt="a"> <img width="100" src="https://64.media.tumblr.com/d482faa04cd6840a960df6d866a0b814/b6882806af6091a7-3a/s250x400/fc35035fb2aa6d98524fcf7751ce9fa2b09aed4f.pnj" alt="a"> <img width="100" src="https://jugproductions.neocities.org/asdfWOAOAAAHHH.webp" alt="a"> <img width="100" src="https://jugproductions.neocities.org/ngngngn.png" alt="a"> <img width="100" src="https://jugproductions.neocities.org/graphics/awesum%20stamp.png" alt="a"> <img width="100" src="https://jugproductions.neocities.org/art.webp" alt="a">
 </p>
 <p align="center">
 
