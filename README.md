@@ -7,11 +7,11 @@
 </p>
 
 <p align="center">
-    <img width="100" src="https://pixelsafari.neocities.org/buttons/1newgrounds.gif" alt="Material Bread logo"> <img width="max" src="https://pixelsafari.neocities.org/buttons/2minecraft.png" alt="a"> <img width="max" src="https://pixelsafari.neocities.org/buttons/1disc6.gif" alt="a">
+    <img width="100" src="https://pixelsafari.neocities.org/buttons/1newgrounds.gif" alt="Material Bread logo"> <img width="max" src="https://pixelsafari.neocities.org/buttons/2minecraft.png" alt="a"> <img width="max" src="https://pixelsafari.neocities.org/buttons/1disc6.gif" alt="a"> <img width="max" src="https://jugproductions.neocities.org/buttons/e23.gif" alt="a">
 </p>
 
 <p align="center">
-    <img width="70" src="https://pixelsafari.neocities.org/misc/badge/ikea2.gif" alt="Material Bread logo"> <img width="70" src="https://pixelsafari.neocities.org/misc/badge/hottopic.gif" alt="a"> <img width="70" src="https://pixelsafari.neocities.org/misc/badge/host.gif" alt="a">
+    <img width="70" src="https://pixelsafari.neocities.org/misc/badge/ikea2.gif" alt="Material Bread logo"> <img width="70" src="https://pixelsafari.neocities.org/misc/badge/hottopic.gif" alt="a"> <img width="70" src="https://pixelsafari.neocities.org/misc/badge/host.gif" alt="a"> <img width="70" src="https://emocowboy.neocities.org/home/mygraphics/emoboy.png" alt="a">
 </p>
    
   <p align="center">
@@ -33,7 +33,7 @@
 <p align="center">
 
 <p align="center">
-   <img width="100" src="https://i.imgur.com/bxvmZJ4.gif" alt="a">  <img width="100" src="https://transbro.neocities.org/Graphics/Icons/Emo/054-deadisthenewalive.gif" alt="a">  <img width="100" src="https://i.imgur.com/Pbf5xuF.jpg" alt="a">  <img width="100" src="https://i.imgur.com/SiEkNYl.jpg" alt="a">
+<img width="100" src="https://i.imgur.com/bxvmZJ4.gif" alt="a">  <img width="100" src="https://transbro.neocities.org/Graphics/Icons/Emo/054-deadisthenewalive.gif" alt="a">  <img width="100" src="https://i.imgur.com/Pbf5xuF.jpg" alt="a">  <img width="100" src="https://i.imgur.com/SiEkNYl.jpg" alt="a">
 </p>
 
 <details>
@@ -54,10 +54,11 @@
 <summary>where 2 find us</summary>
 
 <div style="width: 430px; height: 220px; background-color: white; border-color: hot-pink; border-width: 1px; border-style: dotted; color: #000000; font-size: 11px; overflow: auto;"><p>
-<p>usually we are near the outside of the market , outside the library or in the library , at the docks and rarely in the bakery ALWAYS in safe server </p>
+<p>usually we are near the outside of the market , outside the library or in the library , at the docks and rarely in the bakery ALWAYS in safe server <a href="https://jugproductions.neocities.org/"><img src="https://jugproductions.neocities.org/web%20adopts/cheeseadopt.png"></a>
+        </p>
 </p></div></details>
 
 <p align="center">
     <img width="1000" src="https://i.imgur.com/aQmdJ01.jpg" alt="Material Bread logo">
 </p>
-
+        
