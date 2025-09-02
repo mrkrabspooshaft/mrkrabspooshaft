@@ -37,10 +37,17 @@
 </p>
 
 <details>
-<summary>things that make me uncomfy L0L</summary>
+<summary>dni list LOL</summary>
 
 <div style="width: 430px; height: 220px; background-color: white; border-color: hot-pink; border-width: 1px; border-style: dotted; color: #000000; font-size: 11px; overflow: auto;"><p>
 <p>fictokins (except rick sorry) , "irls" , endosystems , proshippers , shotacons , spawnists / any cultist tbh , zionists / pro war , just w3ird people in general LOL. 𝗴𝗲𝗻𝘂𝗶𝗻𝗲𝗹𝘆 𝗶 𝗱𝗼𝗻𝘁 𝗸𝗻𝗼𝘄 𝘄𝗵𝗼 𝗻3𝗲𝗱𝘀 𝘁𝗼 𝗵𝗲𝗮𝗿 𝘁𝗵𝗶𝘀 𝗯𝘂𝘁 𝘀𝗲𝗹𝗳 𝗱𝗶𝗮𝗴𝗻𝗼𝘀𝗲𝗱 𝘀𝘆𝘀𝘁𝗲𝗺𝘀/𝗽𝗹𝘂𝗿𝗮𝗹𝘀 (𝗮𝗸𝗮 𝗻𝗼𝘁 𝗵𝗮𝘃𝗶𝗻𝗴 𝗮 𝗱𝗶𝗮𝗴𝗻𝗼𝘀𝗶𝘀 𝗼𝗿 𝗯𝗲𝗶𝗻𝗴 𝗺𝗲𝗱𝗶𝗰𝗮𝗹𝗹𝘆 𝗿𝗲𝗰𝗼𝗻𝗼𝗴𝗶𝘇𝗲𝗱) 𝗽𝗹𝗲𝗮𝘀𝗲 𝗽𝗹𝗲𝗮𝘀𝗲 𝘀𝘁𝗮𝘆 𝗮𝘄𝗮𝘆 𝗳𝗿𝗼𝗺 𝗺𝗲, 𝗴𝗲𝗻𝘂𝗶𝗻𝗲𝗹𝘆. 𝗶𝘁 𝗺𝗮𝗸𝗲𝘀 𝘂𝗻𝗰𝗼𝗺𝗳𝗼𝗿𝘁𝗮𝗯𝗹𝗲 𝘁𝗵𝗮𝘁 𝗽𝗲𝗼𝗽𝗹𝗲 𝗮𝗿𝗲 𝘀𝗲𝗹𝗳 𝗱𝗶𝗮𝗴𝗻𝗼𝘀𝗶𝗻𝗴 𝘁𝗵𝗲𝗺𝘀𝗲𝗹𝘃3𝘀 𝘄𝗶𝘁𝗵 𝗮 𝘀𝗲𝗿𝗶𝗼𝘂𝘀 𝗶𝘀𝘀𝘂𝗲 𝘁𝗵𝗮𝘁 𝗶𝘃𝗲 𝗯𝗲𝗲𝗻 𝘀𝘁𝗿𝘂𝗴𝗴𝗹𝗶𝗻𝗴 𝘄 𝗺𝘆 𝘄𝗵0𝗹𝗲 𝗹𝗶𝗳𝗲 𝗟𝗢𝗟. 𝗽𝗹𝗲𝗮𝘀𝗲 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗹𝗼𝘃𝗲 𝗼𝗳 𝗴𝗼𝗱 𝗶𝗳 𝘆𝗼𝘂 𝘀𝘂𝘀𝗽𝗲𝗰𝘁 𝗗𝗜𝗗 𝗼𝗿 𝗮𝗻𝘆 𝗱𝗶𝘀𝘀𝗼𝗰𝗶𝗮𝘁𝗶𝘃𝗲 𝗱𝗶𝘀𝗼𝗿𝗱𝗲𝗿 𝗴𝗼 𝘀𝗲𝗲𝗸 𝗵𝗲𝗹𝗽 𝗯𝗲𝗳𝗼𝗿𝗲 𝗽𝗹𝗮𝘀𝘁𝗲𝗿𝗶𝗻𝗴 "𝗢𝗛 𝗜𝗠 𝗔 𝗦𝗬𝗦𝗧𝗘𝗠 𝗜 𝗛𝗔𝗩𝗘 𝘅 𝗗𝗜𝗦𝗢𝗥𝗗𝗘𝗥" 𝗼𝗻 𝘆𝗼𝘂𝗿 𝘀𝗼𝗰𝗶𝗮𝗹𝘀, 𝗼𝗻 𝘆𝗼𝘂𝗿 𝗽𝗮𝗴𝗲, 𝗮𝗻𝘆𝘁𝗵𝗶𝗻𝗴. medically reconogized systems are VERY free to interact with us by the way (literally our partner is one) </p>
+</p></div></details>
+
+<details>
+<summary>b0undaries</summary>
+
+<div style="width: 430px; height: 220px; background-color: white; border-color: hot-pink; border-width: 1px; border-style: dotted; color: #000000; font-size: 11px; overflow: auto;"><p>
+<p>please do not c+h unless youre friends with me (its just weird to pretend to cuddle with a stranger), also please dont flirt with me or any of my alters as it makes us very uncomfortable since we have a queerplatonic partner. yeah thats about it LOL!!! different alters have different boundaries, and i have no control over that man LOL, most of us will put a tag in the name displaying our interaction status (aka dniuf, iwec, you get it LOLOLOL 0.o) ,, if you overstep my boundaries on accident its like, totally chill man LOL juttts dont do it on purpose really xD</p>
 </p></div></details>
 
 <details>
